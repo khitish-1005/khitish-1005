@@ -15,6 +15,7 @@
 - ⚡ Fun fact **I think I am Intresting😜😉**
 
 <h3 align="left">Connect with me:</h3>
+<img align="right" alt="Jay Shree Ram" src="https://www.google.com/url?sa=i&url=https%3A%2F%2Fin.pinterest.com%2Fpin%2Fjai-shri-ram-in-2023--1135047912314057525%2F&psig=AOvVaw2PFPrjpOPYDNytuv47pAMu&ust=1692547822486000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqFwoTCKiYnp2O6YADFQAAAAAdAAAAABAR">
 <p align="left">
 <a href="https://twitter.com/khitish_2001" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/twitter.svg" alt="khitish_2001" height="30" width="40" /></a>
 <a href="https://linkedin.com/in/https://www.linkedin.com/in/khitish-kumar-bhattamisra-844339258/" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="https://www.linkedin.com/in/khitish-kumar-bhattamisra-844339258/" height="30" width="40" /></a>
