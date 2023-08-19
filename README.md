@@ -1,4 +1,4 @@
-![logo](https://hackernoon.com/hn-images/1*ck6cRbbe3uaelEG2JPsIMw.gif)
+![logo](https://media.kulfyapp.com/38X0E1/38X0E1-360.gif)
 
 <h1 align="center">Hi People 👋, I'm Khitish Kumar Bhattamisra</h1>
 <h3 align="center">Proud To Be An INDIAN</h3>
